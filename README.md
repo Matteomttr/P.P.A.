@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co/JjhpM22W/PPa.png" alt="PPa" border="0">
+
 
 <h1>🔫 P.P.A - Permis de Port d'Armes <em>pour Nova-Life</em></h1>
 
